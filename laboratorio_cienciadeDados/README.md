@@ -1,6 +1,11 @@
 Nome dos integrantes:
-sofia Cicutti
-rafaela Toshiaki
+
+Sofia Cicutti
+
+Rafaela Toshiaki
+
 Nicole Sarnaglia
+
 Fernanda Sayuri
+
 Mayza Bispo
